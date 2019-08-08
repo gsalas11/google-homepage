@@ -1,0 +1,1 @@
+With the completion of this project I hope to gain as much practice as possible. I have no idea what I am doing but by the end of this project I hope to have a better understanding of what it is that this whole shit is.
